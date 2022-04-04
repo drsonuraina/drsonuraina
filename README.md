@@ -1,4 +1,4 @@
-I am a consultant oral and maxillofacial surgeon and specializes in treating a variety of diseases and conditions 
+I am a consultant Dental Surgery , oral and maxillofacial surgeon and specializes in treating a variety of diseases and conditions 
 that affect the mouth, jaw,  head, neck, and face.  I have a special interest in cosmetic facial surgery, craniofacial 
 and skull base surgery, pediatric maxillofacial surgery, cleft lip and palate surgery, and dental implants.
 <!---
